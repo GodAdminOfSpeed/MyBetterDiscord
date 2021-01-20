@@ -1,0 +1,2 @@
+# MyBetterDiscord
+sdwadawsdaw
